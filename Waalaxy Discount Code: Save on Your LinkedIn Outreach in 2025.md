@@ -2,6 +2,8 @@
 <h2>Introduction</h2>
 <p>Waalaxy is an advanced LinkedIn automation tool designed for businesses, recruiters, and sales professionals. It streamlines lead generation by automating connection requests, follow-ups, and messaging on LinkedIn. Whether you're a new user exploring the Waalaxy demo or a seasoned professional using the Waalaxy extension, getting the best deal on pricing is essential. In this guide, we’ll explore Waalaxy’s features, pricing, and how to use a Waalaxy discount code like <strong>uzfkmuwxrxdo</strong> to maximize your savings.</p>
 
+<a href="https://waal.ink/20kA0d" target="_blank" rel="noopener noreferrer">Create Waalaxy Account</a>
+
 <h2>What is Waalaxy?</h2>
 <p>Waalaxy is an AI-powered LinkedIn outreach tool that helps businesses grow by automating LinkedIn prospecting. With the Waalaxy app, users can manage lead generation campaigns, track responses, and optimize engagement. The <strong>Waalaxy AI</strong> ensures efficient communication without violating LinkedIn policies.</p>
 
