@@ -2,6 +2,8 @@
 <h2>Introduction</h2>
 <p>Waalaxy is a powerful automation tool designed to help businesses streamline LinkedIn outreach, recruitment, and lead generation. With its advanced AI capabilities, Waalaxy AI enables users to automate connections, follow-ups, and messaging campaigns efficiently. Whether you're a recruiter, a marketer, or a sales professional, the app Waalaxy offers tailored pricing options to fit different needs.</p>
 
+<a href="https://waal.ink/20kA0d" target="_blank" rel="noopener noreferrer">Create Waalaxy Account</a>
+
 <h2>What is Waalaxy?</h2>
 <p>Waalaxy is a LinkedIn automation app that simplifies lead generation by automating repetitive tasks. With Waalaxy AI, businesses can efficiently send connection requests, messages, and follow-ups. The tool is widely used in <strong>LinkedIn recruitment (Waalaxy recrutement)</strong>, sales outreach, and network expansion.</p>
 
